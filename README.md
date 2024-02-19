@@ -6,8 +6,6 @@ SPT是一個每月線下聚會，以及個人/合作執行專案的一個自發�
 
 [官網](https://sideproj.tw/)
 
-[DC](https://discord.gg/bSyfGp2XSY)
+[Email](sideproj210@gmail.com) 
 
-[Email](sideproj210@gmail.com)
-
-窗口：卷彥Yale ( yale918@gmail.com )
+窗口： Yale Hsu
